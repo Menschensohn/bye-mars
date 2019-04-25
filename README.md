@@ -6,3 +6,5 @@ on my journey through countless worlds and dimensions i've seen a lot strange an
 what about this lovely blueish planet there?
 
 oh look at those cute and fluffy animals, aren't they gorgeus?
+
+some weird behaving hairy noisemakers are extreme gifted poopoothrowexperts.
